@@ -1,16 +1,16 @@
-## Hi there 👋
+# // MEATMEDEAD.
 
-<!--
-**GuttPukrr/GuttPukrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
+I do not tend to interact first unless I know you, so please don't be hesitant to interact! I promise, I won't bite! <3
 
-Here are some ideas to get you started:
+My special interests are The Thing, My Little Pony, Creepypasta and "Gutz 'n' Glory", a story I am working on! 
+My current hyperfixation is : Cookie Run Kingdom! Check out Cake-Hound Cookie's straw.page! (OC) 
+I currently am into playing : The Thing (Remastered), Dandy's World, Adopt Me, Horse Life, Pokemon! 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: KMFDM, And One, Oingo Boingo, The Garden, Slayer, MSI and Ashbury Heights! 
+
+Please respect my boundaries, as I will yours. I require direct communication, as I struggle on social cues!
+
+Puke OUT !!!
+
+💥☠︎︎💣𖦹👊
