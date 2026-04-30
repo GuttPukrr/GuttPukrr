@@ -14,3 +14,5 @@ Please respect my boundaries, as I will yours. I require direct communication, a
 Puke OUT !!!
 
 💥☠︎︎💣𖦹👊
+
+gregor's my housewife btw ♥ life so full of bug guy 🚬🪲
