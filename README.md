@@ -12,6 +12,7 @@ I am an avid music fan. I listen to a ton of industrial punk, new wave, overall 
 gregor's my housewife btw ♥ life so full of bug guy 🚬🪲
 
 Please respect my boundaries, as I will yours. I require direct communication, as I struggle on social cues!
+PT boundaries : please don't cover me if I don't know you ! im not actively looking at chat, so please WHISP to interact! i dont immediately accept friend requests until ive gotten to know you better! <3
 
 Puke OUT !!!
 
