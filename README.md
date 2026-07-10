@@ -10,7 +10,7 @@ My special interests are The Thing, My Little Pony, Creepypasta and "Gutz 'n' Gl
 My current hyperfixation is : Murder Drones and Cookie Run Kingdom! Check out Cake-Hound Cookie's straw.page! (OC) 
 I currently am into playing : The Thing (Remastered), Dandy's World, Adopt Me, Horse Life, Pokemon! 
 
-I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: KMFDM, And One, Oingo Boingo, The Garden, Slayer, MSI and Ashbury Heights! 
+I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: KMFDM, And One, Oingo Boingo, The Garden, Mystery Skulls, Malice Mazir, Slayer, The Smiths, MSI and Ashbury Heights! 
 
 gregor's my housewife btw ♥ life so full of bug guy 🚬🪲
 
