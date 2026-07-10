@@ -2,8 +2,6 @@
 
   <img width="356" height="361" alt="1000015410 (2)" src="https://github.com/user-attachments/assets/6a095208-bcb7-4929-8427-8262219be7b4" />
 
-
-
 Hi ! My name's Gutter , I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
 I do not tend to interact first unless I know you, so please don't be hesitant to interact! I promise, I won't bite! <3
 
