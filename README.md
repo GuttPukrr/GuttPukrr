@@ -2,18 +2,21 @@
 
   <img width="356" height="361" alt="1000015410 (2)" src="https://github.com/user-attachments/assets/6a095208-bcb7-4929-8427-8262219be7b4" />
 
-Hi ! My name's Gutter , I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
+
+                                            ₊˚ ✧ ━━━━꒰ა ♡ ໒꒱━━━━ ✧ ₊˚
+
+𝜗ৎ Hi ! My name's Gutter , I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
 I do not tend to interact first unless I know you, so please don't be hesitant to interact! I promise, I won't bite! <3
 
-My special interests are The Thing, My Little Pony, Creepypasta and "Gutz 'n' Glory", a story I am working on! 
+꩜ My special interests are The Thing, My Little Pony, and Creepypasta !
 My current hyperfixation is : Murder Drones and Cookie Run Kingdom! Check out Cake-Hound Cookie's straw.page! (OC) 
 I currently am into playing : The Thing (Remastered), Dandy's World, Adopt Me, Horse Life, Pokemon! 
 
-I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: KMFDM, And One, Oingo Boingo, The Garden, Mystery Skulls, Malice Mazir, Slayer, NIN, The Smiths, MSI and Ashbury Heights! 
+♬ I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: KMFDM, And One, Oingo Boingo, The Garden, Mystery Skulls, Malice Mazir, Slayer, NIN, The Smiths, MSI and Ashbury Heights! 
 
 gregor's my housewife btw ♥ life so full of bug guy 🚬🪲
 
-Please respect my boundaries, as I will yours. I require direct communication, as I struggle on social cues!
+ᨳଓ Please respect my boundaries, as I will yours. I require direct communication, as I struggle on social cues!
 PT boundaries : please don't cover me if I don't know you ! im not actively looking at chat, so please WHISP to interact! i dont immediately accept friend requests until ive gotten to know you better! <3
 
 Puke OUT !!!
