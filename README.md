@@ -9,9 +9,11 @@
 𝜗ৎ Hi ! My name's Gutter , I am most notably found on social platforms such as Discord, Ponytown, or Tiktok. I am not hugely active, but I stick around! 
 I do not tend to interact first unless I know you, so please don't be hesitant to interact! I promise, I won't bite! <3
 
-꩜ My special interests are The Thing, My Little Pony, OC Creation and Creepypasta ! Check out Cake-Hound Cookie's straw.page! (OC) 
+꩜ My special interests are The Thing, My Little Pony, OC Creation and Creepypasta !
 My current hyperfixation is : Limbus Company DND Campaign !
 I currently am into playing : The Thing (Remastered), Tomodachi Life, Minecraft and Pokemon! 
+
+𖤓 My OC's may often have a strawpage, so check them out in their respective links below!
 
 ♬ I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: And One, KMFDM, Oingo Boingo, The Garden, Mystery Skulls, Malice Mazir, Slayer, NIN, The Smiths, MSI and Ashbury Heights! 
 
