@@ -11,7 +11,7 @@ I do not tend to interact first unless I know you, so please don't be hesitant t
 
 ꩜ My special interests are The Thing, My Little Pony, OC Creation and Creepypasta !
 My current hyperfixation is : Evangelion , JJBA : SBR  & The Limbus Company DND Campaign !
-I currently am into playing : The Thing (Remastered), Tomodachi Life, Minecraft and Pokemon! 
+I currently am into playing : The Thing (Remastered) & Animal Hospital !
 
 𖤓 My OC's may often have a strawpage, so check them out in their respective links below! i also make vocaloid skins , so if you have a request , make one on my straw , cus i dont have a current request box !! 
 
