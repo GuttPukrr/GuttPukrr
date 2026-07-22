@@ -13,7 +13,7 @@ I do not tend to interact first unless I know you, so please don't be hesitant t
 My current hyperfixation is : Limbus Company DND Campaign !
 I currently am into playing : The Thing (Remastered), Tomodachi Life, Minecraft and Pokemon! 
 
-𖤓 My OC's may often have a strawpage, so check them out in their respective links below!
+𖤓 My OC's may often have a strawpage, so check them out in their respective links below! i also make vocaloid skins , so if you have a request , make one on my straw , cus i dont have a current request box !! 
 
 ♬ I am an avid music fan. I listen to a ton of industrial punk, new wave, overall alternative music. My top favorites are: And One, KMFDM, Oingo Boingo, The Garden, Mystery Skulls, Malice Mazir, Slayer, NIN, The Smiths, MSI and Ashbury Heights! 
 
